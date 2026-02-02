@@ -1,6 +1,6 @@
 Hi😎i'm Navnit Kumar
 
-i'm currently learning👨🏻‍💻Cloud Engineering || Devops Engreeing..
+i'm currently learning👨🏻‍💻Cloud Engineering || Devops Engineering..
 
 Email me👉🏻navnitkumar927@gmail.com for Collabration/Project or Anything Else..😍
 
